@@ -1,0 +1,2 @@
+# Corporate-Business-Email-Executive-Memo-Writing-Portfolio
+Created a professional business communication portfolio showcasing my ability to draft corporate emails, executive memos, formal requests, follow-up messages, and internal business communications.  This portfolio focuses on improving professional writing skills, maintaining proper business etiquette, and communicating information clearly 
